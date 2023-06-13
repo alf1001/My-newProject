@@ -1,2 +1,2 @@
 # My-newProject
-Share to your waifu
+Please share to your waifu
